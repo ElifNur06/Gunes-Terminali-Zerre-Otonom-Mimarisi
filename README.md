@@ -1,0 +1,1 @@
+# G-ne-Terminali-Zerre-Otonom-Mimarisi
